@@ -48,7 +48,8 @@ hold on to your life
 
 scream and shout into clouds
 it's your fear for the life
-in eternal agony
+in eternal agony what you'll find
+is the sense of the times
 
 
 

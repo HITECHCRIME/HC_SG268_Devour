@@ -30,7 +30,19 @@ eating bite after bite
 memory so fragmented 
 in chunks like it's vanished
 
+keep it airtight in the body bags
+your feed for the mice of the mind
+only thing that makes it right
+wrap it up in conccussions
+eating bite after bite
+
+bite after bite 
+
+memory so fragmented 
+it's vanished
+
 keep it allright all together
+hold on to your life
 
 
 

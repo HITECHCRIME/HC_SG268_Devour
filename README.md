@@ -30,6 +30,10 @@ eating bite after bite
 memory so fragmented 
 in chunks like it's vanished
 
+scream and shout into clouds
+it's your fear for the life
+
+
 
 ```
 

@@ -27,7 +27,8 @@ your feed for the mice of the mind
 only thing that makes it right
 wrap it up in conccussions
 eating bite after bite 
-memory is chunks like it's vanished
+memory so fragmented 
+in chunks like it's vanished
 
 
 ```

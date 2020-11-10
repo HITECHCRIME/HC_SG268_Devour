@@ -24,11 +24,10 @@ Description.
 ```
 keep it airtight in the body bags
 your feed for the mice of the mind
-only thing makes it right
+only thing that makes it right
 wrap it up in conccussions
 eating bite after bite 
-memory vanished
-into oblivion
+memory is chunks like it's vanished
 
 
 ```

@@ -25,7 +25,7 @@ Description.
 keep it airtight in the body bags
 your feed for the mice of the mind
 only thing that makes it right
-wrap it up in conccussions
+wrap it up in conccussions (compassion)
 eating bite after bite 
 memory so fragmented 
 in chunks like it's vanished

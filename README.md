@@ -42,9 +42,16 @@ memory so fragmented
 it's vanished
 
 keep it allright all together
-holding on to your life
+holding tight on to your life
 scream and shout into clouds
-it's your fear for the life / it's the fear for your life
+it's your fear for the life 
+for the mind it's the doubts
+that are paying the price
+
+
+
+
+/ it's the fear for your life
 
 in eternal agony what you'll find
 is the sense of the times

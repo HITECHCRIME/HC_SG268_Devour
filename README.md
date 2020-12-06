@@ -8,9 +8,9 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Devour / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:**
 
@@ -25,10 +25,23 @@ Description.
 keep it airtight in the body bags
 your feed for the mice of the mind
 only thing that makes it right
-wrap it up in conccussions (compassion)
+wrap it up in conccussions 
 eating bite after bite 
 memory so fragmented 
 in chunks like it's vanished
+
+keep it allright, all together
+holding tight on to your vice
+scream and shout into clouds
+it's your fear for the life 
+for the mind it's the doubts
+that are paying the price
+(compassion)
+gaining vice after vice
+till nothing's left in the 
+us garish
+through the agony of the 
+what you'll find is the sense of the times
 
 keep it airtight in the body bags
 your feed for the mice of the mind
@@ -41,20 +54,9 @@ bite after bite
 memory so fragmented 
 it's vanished
 
-keep it allright all together
-holding tight on to your life
-scream and shout into clouds
-it's your fear for the life 
-for the mind it's the doubts
-that are paying the price
-
-
-
-
 / it's the fear for your life
 
-in eternal agony what you'll find
-is the sense of the times
+
 
 
 
